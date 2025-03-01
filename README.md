@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **smartykrish2004@gmail.com**
 
-- 📄 Know about my experiences [https://docs.google.com/presentation/d/1jDxT1wpY6MpLjE0Q92zAyrjKKhS_rSyTlA52mCtb8oM/edit#slide=id.p](https://docs.google.com/presentation/d/1jDxT1wpY6MpLjE0Q92zAyrjKKhS_rSyTlA52mCtb8oM/edit#slide=id.p)
+- 📄 Know about my experiences [https://docs.google.com/presentation/d/1jDxT1wpY6MpLjE0Q92zAyrjKKhS_rSyTlA52mCtb8oM/edit#slide=id.p]([https://docs.google.com/presentation/d/1jDxT1wpY6MpLjE0Q92zAyrjKKhS_rSyTlA52mCtb8oM/edit#slide=id.p](https://drive.google.com/file/d/1KycpzaBo5cFlUODsGcWaiz2yNQhGXGwg/view?usp=sharing))
 
 - ⚡ Fun fact **I was a FINALIST in my First Ever Hackathon!**
 
