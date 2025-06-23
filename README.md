@@ -9,7 +9,7 @@
 
 - 👯 I’m looking to collaborate on **ANY PROJECT!**
 
-- 👨‍💻 All of my projects are available at [https://github.com/Krishna-Agarwal-2](https://github.com/Krishna-Agarwal-2)
+- 👨‍💻 All of my projects are available at [https://github.com/Krishna-Agarwal-2](https://github.com/Krishna-Agarwal-2) lol
 
 - 📫 How to reach me **smartykrish2004@gmail.com**
 
